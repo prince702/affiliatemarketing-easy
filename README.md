@@ -1,2 +1,2 @@
-# prince702.github.io
+# affiliatemarketing easy
 GitHub Pages
